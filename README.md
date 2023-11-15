@@ -1,0 +1,2 @@
+# homework
+Uyga vazifa
